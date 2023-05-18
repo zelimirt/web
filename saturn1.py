@@ -1,3 +1,0 @@
-ovo je moj prvi tekst......
-ovo je moj drugi tekst
-
